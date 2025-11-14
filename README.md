@@ -1,0 +1,2 @@
+# djanga
+Asadbek tomonidan
